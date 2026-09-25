@@ -214,4 +214,4 @@ MiniRacingOnline is offered as a full free version, with all features and update
 Don't miss out on the excitement—download MiniRacingOnline today and take your place on the track! Start racing now and join a vibrant community of passionate gamers!
 
 ---
-**Last updated:** 2026-09-24 21:59:10 UTC
+**Last updated:** 2026-09-25 00:26:55 UTC
